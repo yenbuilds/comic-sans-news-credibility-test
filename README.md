@@ -1,0 +1,1 @@
+Go to your favourite news site. Use a browser plugin to change the font to comic sans. If you can't take the content seriously then your news source is shit or you've been depending too much on style over substance.
